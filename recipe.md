@@ -1,0 +1,10 @@
+Grains and pasta: My favorites are whole rolled oats, farro, quinoa, couscous, polenta, and white and brown rice. I also like to keep a few pasta shapes in the cupboard.
+Canned produce: Whole peeled tomatoes, diced fire roasted tomatoes, and pumpkin puree are my top picks.
+Beans and legumes: Canned and dried beans and legumes are nutrient powerhouses, and they last for months. Stock up on lentils, chickpeas, beans, and refried beans.
+Fats: I use extra-virgin olive oil for almost everything, but I also keep coconut oil, toasted sesame oil, and butter on hand. Nuts, seeds, nut butters, and coconut milk are essential fats in my pantry too.
+Dried fruit: My favorites are dried tart cherries, apricots, and Medjool dates. They’re excellent additions to baking recipes and snacks on their own!
+Baking ingredients and spices: Sea salt, black pepper, cumin, coriander, cinnamon, cardamom, smoked paprika, and red pepper flakes are a great place to start. If you like baking, keep sugar, brown sugar, chocolate chips, flour, baking soda, baking powder, and active dry yeast on hand as well.
+In the freezer
+Frozen vegetables: Did you know that frozen vegetables are just as – if not more – nutritious than fresh ones? I especially love to add frozen peas, spinach, and corn to soups, salads, and pastas. Frozen berries also work well in smoothies and baking recipes.
+Bread and tortillas: Bread freezes perfectly, so it never hurts to have one loaf of sandwich bread and one loaf of crusty bread in your freezer. I also like to keep frozen corn and flour tortillas on hand to whip up tacos, enchiladas, or quesadillas any time.
+A few freezer meals: Soups, stews, veggie patties and balls, casseroles, and baked goods all freeze well. Next time you cook, freeze any leftovers, or make a double batch, and freeze the extras!
